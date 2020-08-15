@@ -1,4 +1,4 @@
-### Hi there 👋
+### Olá 👋
 
 Estou muito ✨ feliz ✨ que você tirou um tempinho para vir aqui! Deixa eu adivinhar, 💬 você chegou até aqui porque esbarrou em algum `código` e conseguiu observar algo que poderia ser melhorado, não é? 🔭 Ou teve uma idéia e gostaria de compartilha-lá comigo!📫 Meu muito obrigado por isso, pois é por causa de pessoas legais como você,👯 que acredita em um mudo melhor com tecnologias melhores, que me motiva a ajudar outras pessoas produzindo mais conteúdo!!! ⚡ Fique a vontade para entrar em contado comigo utilizando uma das opções abaixo! Todos os feedbacks serão analisados, e todas as mensagems serão carinhosamente respondidas.😄
 
